@@ -3,6 +3,13 @@ Il 06/06/2024 Io ([Sofia](https://instagram.com/blacksoulgem95)) e [Daniela](htt
 
 In questa piccola pagina, alleghiamo tutta la bibliografia di riferimento di cui abiamo parlato in diretta.
 
+## Recuperare la diretta
+
+Ecco i link per recuperare la diretta:
+
+- Parte 1: [Recupera la parte 1 diretta su Instagram](https://www.instagram.com/reel/C74kDjcImrQ/)
+- Parte 2: [Recupera la parte 2 della diretta su Instagram](https://www.instagram.com/reel/C74ntTvIp28/)
+
 ## Bibliografia NeuroQueer
 
 - Eleonora Marocchini, Neurodivergente. Capire e coltivare la diversità dei cervelli umani. Edizioni Tlon. 2024
