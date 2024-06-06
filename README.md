@@ -1,4 +1,9 @@
-# Bibliografia NeuroQueer
+# Diretta NeuroQueer
+Il 06/06/2024 Io ([Sofia](https://instagram.com/blacksoulgem95)) e [Daniela](https://instagram.com/danielanoel), assieme ai professionisti [Dott. Rodolfo Pessina](https://instagram.com/sexotan_gocce) e [Dott.ssa Elena Fretti](https://instagram.com/elena_fretti_psicologa) del [Gruppo Empathie+](https://instagram.com/gruppoempathie) abbiamo portato una diretta in cui si parlava di percorsi diagnostici per le neurodivergenze, l'intersezionalità fra comunità LGBTQIA+ e neurodivergenze, e come proseguire se si ha il sospetto di neurodivergenza.
+
+In questa piccola pagina, alleghiamo tutta la bibliografia di riferimento di cui abiamo parlato in diretta.
+
+## Bibliografia NeuroQueer
 
 - Eleonora Marocchini, Neurodivergente. Capire e coltivare la diversità dei cervelli umani. Edizioni Tlon. 2024
 
